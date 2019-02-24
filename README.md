@@ -6,6 +6,8 @@
 
 Tomatotress is a big eggg.
 
-Yimian Liu is a big vegetable.
+Yimian Liu is a big vegetableeeeeeeeeess
 
-'so much chaos'
+chaos theory
+
+devotion
